@@ -1,13 +1,13 @@
-A Vim Barnyard Leech,  
-A Archival By Mender,  
-A Banal Viced Rhymer.  
+A vim barnyard leech,  
+A archival by mender,  
+A banal, viced rhymer.  
 
-A March By A Evil Nerd...  
-Barnacled Army Hive?!  
-Cavalrymen Rabid, Eh?  
+A march by a evil nerd...  
+Barnacled Army hive?!  
+Cavalrymen rabid, eh?  
 
-Mr. Bleed Via Anarchy  
-Heard Macabre Vinyl.  
-Admirably Craven, Eh?  
+Mr. "bleed via anarchy"  
+Heard macabre vinyl.  
+Admirably craven, eh?  
 
-Imbalance Very Hard.
+Imbalance very hard.
