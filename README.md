@@ -1,6 +1,6 @@
 A Vim Barnyard Leech,  
 A Archival By Mender,  
-A Balal Viced Rhymer.  
+A Banal Viced Rhymer.  
 
 A March By A Evil Nerd...  
 Barnacled Army Hive?  
