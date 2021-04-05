@@ -7,7 +7,7 @@ Barnacled Army hive?!
 Cavalrymen rabid, eh?  
 
 Mr. "bleed via anarchy"  
-Heard macabre vinyl.  
+heard macabre vinyl.  
 Admirably craven, eh?  
 
 Imbalance very hard.
